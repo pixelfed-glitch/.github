@@ -2,4 +2,4 @@
 
 Glitch team for Pixelfed.
 
-Discord server : https://discord.gg/qbSsr5pa
+Discord server : https://discord.gg/HuZc6jr25X
